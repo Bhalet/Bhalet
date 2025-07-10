@@ -1,3 +1,3 @@
 - Hi, I'm Bhalet
-- I'm redimentary in everything
-
+- I'm rudimentary in everything
+- Currently binge watching Anime
